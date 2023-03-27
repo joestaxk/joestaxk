@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @joestaxk
 - 👀 I’m interested in solving problems together
-- 🌱 I’m currently learning and building on project
+- 🌱 I’m ready for work
 - 💞️ I’m looking to collaborate with people who wants to build and solve problems.
 - 📫 To get intouch with me,just email me @ joestaxk@gmail.com
 
